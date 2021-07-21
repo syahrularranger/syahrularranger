@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @syahrularranger
+- I'm is a musician.. but Interested in a coding
